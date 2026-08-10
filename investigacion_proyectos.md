@@ -132,4 +132,4 @@ Este enfoque multidisciplinario lo convierte en una excelente oportunidad para a
 ---
 
 **Fecha de investigación:** 9 de agosto de 2026
-**Equipo:** [Nombres de los integrantes]
+**Equipo:** [Saray Foronda - Damian Correa Tusarma]
